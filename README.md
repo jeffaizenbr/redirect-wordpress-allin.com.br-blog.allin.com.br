@@ -1,0 +1,1 @@
+# redirect-wordpress-allin.com.br-blog.allin.com.br
